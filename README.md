@@ -1,4 +1,4 @@
-**Política de privacidade para Grupo Humberto Volts**
+**Política de privacidade para Rede ForadaMatrix**
 
 `Todas as suas informações pessoais recolhidas, serão usadas para o ajudar a tornar a sua visita no nosso canal/grupo o mais produtiva e agradável possível.
 
